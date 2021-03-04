@@ -1,1 +1,0 @@
-Li Yintao niu bi.
